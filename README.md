@@ -1,1 +1,1 @@
-# Akrika-technologies-intership
+# Akrika-technologies-internship
